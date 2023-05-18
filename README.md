@@ -1,1 +1,1 @@
-# hello-world
+I want to be better at designing websites. I know that there are various things to do before jumping to the computer to design. I want to learn all the processes, so I can design websites more comfidently.
